@@ -1,5 +1,12 @@
 ## Hi there 👋
 
+星期二上班qq
+
+
+
+
+
+
 <!--
 **Lswen-Lee/Lswen-Lee** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
